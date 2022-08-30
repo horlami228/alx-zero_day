@@ -1,1 +1,1 @@
-I want to be a full stacl software developer
+it's time to code!
